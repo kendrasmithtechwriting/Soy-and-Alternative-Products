@@ -5,19 +5,13 @@ At the beginning, the class sampled two different kinds of *Synergy Kombucha*, a
 After the preparation of the foods designated to each group, the class evaluated all the foods. The foods include: Edamame with Kosher Salt, Quorn Chicken Product, Meatloaf with no TVP, Meatloaf 1/4 c TVP, Meatloaf 1/2 c TVP, Tofu Stir Fry, Hummus, Peanut Butter Pudding (with Tofu), Tofu Spinach Quiche, Tofu Macaroni and Cheese, and a Bruschetta Quinoa Casserole. 
 ## Methods
 At the beginning of class, we first tried a strawberry Kefir, two kinds of Synergy Kombucha, and a Chocolate Soy milk and recorded the appearance, aroma, flavor, texture, and consistency.
-
 After we completed the beverage charting, we passed around a plate of Soy Cheese and recorded the appearance, aroma, flavor, texture, and consistency of the cheese as we did with the beverages. 
-
 Next, we then separated into individual kitchens. 
 
 In Kitchen 5, my partner and I first prepared Meatloaf Variation A using dark TVP. 
-
 First, we pre-heated the oven. 
-
 In a separate mixing bowl, we added ¼ cup dark TVP and ¼ cup water and let it stand for 10 minutes. 
-
 The dried onion, bread crumbs, tomato sauce, and salt were already measured and combined in a mixing bowl for us. 
-
 We beat the egg and added it to the prepared mixture as well as the pre-weighed meat. 
 While waiting for the TVP to stand, we weighed the weight of the pan; it weighed 4.6ounces. 
 After the TVP stood for 10 minutes we added it to the meat mixture and mixed well. 
@@ -25,8 +19,10 @@ We then placed the mixture in a small loaf pan and spread it out evenly along th
 After the meat mixture was spread, we covered with ¼ cup BBQ Sauce and weighed the pan and the meat; it weighed 1lb 10.4ounces. 
 We placed the loaf man with meatloaf in oven for 30 minutes. 
 When the timer went off, we took the temperature of the meatloaf to ensure it reached the proper temperature of 155 degrees Fahrenheit or higher. 
-We weighed the pan after it cooled slightly, and it weighed 1lb 8.9oz.
+We weighed the pan after it cooled slightly, and it weighed 1lb 8.9oz
+
 **The Percent Yield was 94.5%**
+
 We then prepared the Bruschetta Quinoa Casserole; the quinoa was pre-cooked for us. 
 My partner first coated the 8x8 baking dish with Olive Oil and Garlic pieces.
 While she was doing so, I heated oil in a saucepan on medium heat. As the oil was heating, I chopped the onion. Once the onion was finely chopped, I added it to the heated oil and let saute for five minutes. After five minutes, I added 1/2 teaspoon of garlic and 1/2 teaspoon of salt and let saute for a minute more to allow the mixture to become fragrant. After reaching desired fragrance, I added an 8 ounce can of tomato sauce and let simmer for a couple minutes. 
