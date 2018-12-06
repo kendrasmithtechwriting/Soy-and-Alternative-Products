@@ -64,3 +64,5 @@ Overall, there are a lot of soy and alternative products for proteins that actua
 **Quinoa** : Quinoa belongs to the grain family and is used in a lot of vegan and vegetarian dishes. Quinoa is packed with protein, has every amino acid, and is rich with lysine. It is also a good source of iron, magnesium, Vitamin E, potassium, and fiber. 
 
 **Kombucha** : Kombucha is a fermented tea. After it ferments for a while, it gets a very vinegar-based taste. It is very microbial and is thought to help detoxify, improve digestion, prevent cancer and arthritis, boost immune system, help with weight loss, and enhance energy.
+
+
